@@ -1,0 +1,2 @@
+# Shinngu
+sv sinh tồn
